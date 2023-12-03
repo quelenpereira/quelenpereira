@@ -8,5 +8,8 @@
   
   # 🚀💻 Linguagens e Ferramentas que uso 💻 :
 
+![image](https://github.com/quelenpereira/quelenpereira/assets/115953655/e125b0ce-17ee-4ce1-a807-136685c8e4f8)
+
+
 
 
